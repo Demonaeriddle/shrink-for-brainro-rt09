@@ -1,4 +1,4 @@
-#  
+#  Experience shrink for brainrots like never before with shrink for brainrots stealth Script, the #1 Script. Includes one-hit kill and aimbot for
 
 
 
